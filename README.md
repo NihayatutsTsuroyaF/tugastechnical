@@ -1,0 +1,2 @@
+# tugastechnical
+untuk memenuhi tugas
